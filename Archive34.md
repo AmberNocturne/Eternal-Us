@@ -1,0 +1,10 @@
+I like that he explains reality is fundamentally information and consciousness is primary. He helps in reimagining reality, blending science, spirituality, and personal growth into a unified framework.
+His ideas challenge people to think bigger, ask deeper questions, and explore the limitless potential of consciousness. His theory tries to bridges the gap between subjective spiritual experience and objective scientific logic where there has been a lot of head butting 
+
+His Larger Consciousness System(LCS) as the Absolute Unbounded Oneness (AUO) or Absolute Unbounded Manifold (AUM)-God, pure oneness, supreme being-whatever you wanna call it, uses like a digital physics model to create our virtual reality (Physical Matter Reality - PMR) for the purpose of evolving itself by reducing entropy the fact that Consciousness itself is evolving. It helps to better understand “God” or whatever it is on a completely different level and something one can actually comprehend and even relate to.
+
+
+I really like his Virtual Reality Analogy because I truly believe reality is fundamentally information.  He describes reality as data streams interpreted by consciousness, using modern virtual reality technology as an example for us to better comprehend and understand reality, which I believe thus far many have struggled to explain and many struggle to understand. He gives our minds a visualization of physical reality as a simulation produced by the LCS, where space-time serves as a data stream—similar to computer graphics—filtered for individual conscious entities playing "avatars"(us)
+
+I really like how he aligns Quantum Physics with his theory for the scientific mind(not hardcore scientist lol) He explains that phenomena like quantum entanglement and the observer effect align with his theory, presenting consciousness as the key to resolving paradoxes in modern physics.
+He’s a Physicist, he worked in NASA for a long time and he has and is doing a lot of research in advanced nuclear physics. 
